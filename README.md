@@ -1,4 +1,5 @@
 # bcb-sincerio
 
-![image|50](https://github.com/user-attachments/assets/e4033926-69ce-4f38-8b30-1ba6f882a033)
+![image](https://github.com/user-attachments/assets/fbbb88f9-fc3e-4d78-adba-96439d52a760)
+
 
